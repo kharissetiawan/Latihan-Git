@@ -1,0 +1,1 @@
+Sekolah itu bayar
